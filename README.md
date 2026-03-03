@@ -1,1 +1,3 @@
-# the-way-to-manger
+# *The Way to the Manger: A Family Advent Devotional – A Complete Review & Guide*
+## *The Christmas season often arrives like a whirlwind. Between the school plays, the frantic gift-shopping, and the endless loop of holiday hits on the radio, it is remarkably easy to lose sight of the “Reason for the Season.” For families looking to trade the chaos for connection, Jeff and Abbey Land have provided a beautiful solution in their book, The Way to the Manger: A Family Advent Devotional.* [More details…](https://spiritualkhazaana.com/the-way-to-the-manger-a-family-advent/)
+## #manger #thewaytothemanger #godwithus #presenceofgod #foundationofhope
